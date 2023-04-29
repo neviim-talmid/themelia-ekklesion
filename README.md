@@ -77,6 +77,11 @@ What changed in the new testament was again that the geographical place of gathe
 
 Through the comming of the promised Messiah the convenants from the old testament were fullfiled (Acts 3:21), the price for humankind's sin was paid, evil was defeated, and a new convenant was established (Jeremiah 31:31-34, Luke 22:20, Romans 7:6), salvation is freely available for everyone believing in the risen Son of God pictured at Mount Sinai by all those looking at the bronze snake risen by Moses in the desert (John 3:14-15; Numbers 21:4-9). The curtain of the Jerusalem temple has been torn in two (Matthew 27:51) and the holy of holies, the dwelling place of God has been open to all those unified and cleansed in one Spirit with God (Romans 8:9, Collosians 3:1-4, 1 Corinthians 12:12-13). The broken fellowship from Genesis has been restored (1 Chorintians 15:22, Romans 5:12), the old garden of Eden will be reopened on the new earth and under the new heaven and the church will receive the eternal life that Adam and Eve lost (Romans 6:23) to reign in the new paradise *Gan Eden* (Revelation 21:1-8).
 
+## 8. Conclusion
+
+Hope that the paper managed to shed light on how the church was prepared from the moment man was created and has fallen to be a part in God's redemption plan through unification with Christ the promised redeemer to share the same  mission in saving humanity from evil.
+
+
 ## Bibliography
     Wayne Grudem, Systematic Theology
     Herman Bavinck, Systematic Theology Vol. 4
