@@ -2,11 +2,11 @@
 
 ## 1. Introduction
 
-In this paper would like to look at how the church is reflected in the Old Testament, to see if in the early texts there are hints about the church of Christ and if it would be possible to already understand from those texts what the church and its role would be. 
+The aim of this paper is to look at how the church is mirrored in the Old Testament, to see whether in the early texts there are any hints about the church of Christ and if it would be possible to already understand from those texts what the church and its role would be. 
 
-This would not only be a way to confirm God's plan for those who only read and believe in the Old Testament but also for christians today that we are the Church that Christ desired, God's precious possession which fulfills its purpose on earth built on the apostles and prophets with Jesus as cornerstone (Ephesians 2:19-21).
+This would not only be a way to confirm God's plan for those who only read and believe in the Old Testament but also for Christians today, who are the Church that Christ desired, God's precious possession which fulfills its purpose on earth built on the apostles and prophets with Jesus as cornerstone (Ephesians 2:19-21).
 
-To find the roots of the church we will need to engage in a longer journey starting from the beginnings of the humankind and following the people of Israel in the old testament. Where a parallel is found between old and new testaments, points will be made on what changed and what remained the same with the coming of Christ and the new covenant.
+In order to find the roots of the church we will need to engage in a longer journey starting from the beginnings of the humankind and following the people of Israel throughout the Old Testament. Where a parallel is found between old and new testaments, points will be made on what changed and what remained the same with the coming of Christ and the new covenant.
 
 ## 2. How everything started
 
