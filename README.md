@@ -91,4 +91,8 @@ As stated at the very beginning, the aim of this paper was to bring forth some a
     Lita Sanders, Dwelling with God: From Eden to the New Jerusalem
     Whitney Wollard, The 5 Key Covenants God makes with Humans in the Bible
     Brett A. Berger, What are the Biblical Covenants?
-   
+    Richard E. Averbeck, Priest, Priesthood, Baker's Evangelical Dictionary of Biblical Theology. Edited by Walter A. Elwell
+    Moses Y. Lee, Who is Melchizedek?
+    Sandra Richter, Kings, Priests, And Prophets In The Old Testament
+    Colin Smith, Christian Leadership: What Did God Want in a King?
+    Sam Storms, What Does Scripture Teach About the Office of Prophet and Gift of Prophecy?
