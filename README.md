@@ -78,7 +78,7 @@ Through the coming of the promised Messiah the covenants of the Old Testament we
 
 ## 8. Conclusion
 
-Hopefully the paper managed to bring forth some aspects on how the church although born much later was prepared from the moment man was created and has fallen, to be a part in God's redemption plan and to share through unification with Christ, the promised redeemer, the same crucial mission in saving humanity from evil.
+As stated at the very beginning, the aim of this paper was to bring forth some aspects of how the church, although born much later, had been prepared even from the moment of creation, to partake in God's redemption plan and to share through the unification with Christ, the promised Redeemer, the same crucial mission of saving humanity from evil.
 
 ## Bibliography
     Wayne Grudem, Systematic Theology
