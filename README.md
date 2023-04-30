@@ -1,5 +1,4 @@
 # Foundations of the Church in the Old Testament
-<sub>-- Marius Veres --</sub>
 
 ## 1. Introduction
 
